@@ -1,0 +1,2 @@
+# shitgamessoftwaresite
+официальный сайт щгс
